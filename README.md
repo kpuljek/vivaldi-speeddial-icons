@@ -1,0 +1,1 @@
+# vivaldi-speedial-icons
